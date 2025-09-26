@@ -1,3 +1,5 @@
 Gua coba dlu > lo siapa
-Gua budak > git budak
-data baru main
+Gua kocak > git budak
+data baru botak
+
+baruuuhhss
