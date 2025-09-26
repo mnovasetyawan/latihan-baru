@@ -1,1 +1,0 @@
-Gua coba dlu > git main
